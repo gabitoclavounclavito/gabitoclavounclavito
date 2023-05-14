@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gabitoclavounclavito
+- 👀 I’m interested in good projects
+- 🌱 I’m currently learning about investments and blockchains
+- 💞️ I’m looking to collaborate on solid projects
+- 📫 How to reach me ... Well, I'm not really sure what this means
